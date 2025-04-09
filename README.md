@@ -1,2 +1,3 @@
-# Lady gaga é ruim 
-# Katy Perry é melhor
+# Lady gaga amor
+
+# Katy Perry gay
